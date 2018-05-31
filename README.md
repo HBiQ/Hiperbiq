@@ -3,7 +3,7 @@ Hiperbiq Token
 
 Hiperbiq (HBQ)
 
-Hiperbiq Description: IHiperbiq'ın Tanımı
+Hiperbiq Description: Hiperbiq'ın Tanımı
 
 What is the Hiperbiq?
 
