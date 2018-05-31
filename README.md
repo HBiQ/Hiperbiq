@@ -41,12 +41,16 @@ https://github.com/Hiperbiq (Official)
 
 https://github.com/HBiQ (Official)
 
+https://plus.google.com/u/1/118159936951147404316
+
+https://plus.google.com/u/1/communities/110242660836102562704
+
 
 
 
 Other Links: Diğer Linkler
 
-https://medium.com/@hiperbiq/
+https://medium.com/@hiperbiq/hiperbiq-df28fa68462f
 
 https://medium.com/@mkececi/
 
